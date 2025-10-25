@@ -1,4 +1,4 @@
-## Hi there, i'm Lisa
+## Hi there, I'm Lisa
 
 # 💫 About Me:
 🦋 I'm Lisa 18 y.o.<br>🎓 HSE student<br><br>
