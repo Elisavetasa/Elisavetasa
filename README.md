@@ -1,7 +1,7 @@
 ## Hi there, I'm Lisa
 
 # 💫 About Me:
-🦋 I'm Lisa 18 y.o.<br>🎓 HSE student<br><br>
+🦋 I'm Lisa 19 y.o.<br>🎓 HSE student<br><br>
 
 
 ## 🌐 Socials:
